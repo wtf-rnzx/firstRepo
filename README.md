@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rnzyy10
+- 👋 Hi, I’m @renz
 - 👀 I’m interested in ... you uwu
 - 🌱 I’m currently learning ... coding
 - 💞️ I’m looking to collaborate on ... someone na di pabigat
